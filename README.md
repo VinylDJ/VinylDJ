@@ -8,8 +8,8 @@
     Rather, I'm worried about those who will contact you again someday..." - Haruki Murakami.
 
     
-                 if you want to start chatting, write anywhere, all links are listed on the left.
-                 Я также говорю на русском. Хочешь пообщаться - пиши в телеграм. Ссылка слева.
+                    if you want to start chatting, write anywhere, all links are listed on the left.
+                    Я также говорю на русском. Хочешь пообщаться - пиши в телеграм. Ссылка слева.
 <!---
 VinylDJ/VinylDJ is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
