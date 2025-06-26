@@ -9,7 +9,7 @@
 
     
                     if you want to start chatting, write anywhere, all links are listed here.
-                    Я также говорю на русском. Хочешь пообщаться - пиши в телеграм.
+                    Я также говорю на русском. Хочешь пообщаться - пиши в телеграм (@Scalupaarewhatsleftofourwings).
 <!---
 VinylDJ/VinylDJ is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
