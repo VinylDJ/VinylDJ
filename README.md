@@ -9,7 +9,7 @@
 
     
                     if you want to start chatting, write anywhere, all links are listed here.
-                                    Хочешь пообщаться - пиши в дискорд.
+                                    Хочешь пообщаться - пиши в дискорд(wotthehak).
 <!---
 VinylDJ/VinylDJ is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
