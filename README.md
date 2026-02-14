@@ -2,7 +2,8 @@
                   
   
  
-<img width="500" height="279" alt="image" src="https://github.com/user-attachments/assets/513d437c-e540-4895-945a-6f6dbddd375d" />
+<img width="720" height="240" alt="image" src="https://github.com/user-attachments/assets/c3b0b371-122f-4942-b015-725ed316f4ae" />
+
 
  
       "I'm not worried about you, people like you are always fine, no matter what happens to them...
