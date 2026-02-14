@@ -6,8 +6,7 @@
  
     "I'm not worried about you, people like you are always fine, no matter what happens to them...
     Rather, I'm worried about those who will contact you again someday..." - Haruki Murakami.
-    
-                              ࣪˖ ⊹ ──────────── 𓆩♱𓆪 ───────────── ⊹ ࣪ ˖
+                                  ࣪˖ ⊹ ──────────── 𓆩♱𓆪 ───────────── ⊹ ࣪ ˖
                     if you want to start chatting, write anywhere, all links are listed here.
                                     Хочешь пообщаться - пиши в дискорд(wotthehak).
 <!---
