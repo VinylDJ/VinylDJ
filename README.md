@@ -2,7 +2,8 @@
                   
   
  
- ![de02911fa1afffdd451b22b04da56ed8](https://github.com/user-attachments/assets/373d4be5-826e-4199-864f-ae4e23f23bae)
+<img width="735" height="437" alt="image" src="https://github.com/user-attachments/assets/780986d2-895a-4892-bcc3-48571612c3c8" />
+
  
       "I'm not worried about you, people like you are always fine, no matter what happens to them...
          Rather, I'm worried about those who will contact you again someday..." - Haruki Murakami.
