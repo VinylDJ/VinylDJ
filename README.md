@@ -6,6 +6,7 @@
  
     "I'm not worried about you, people like you are always fine, no matter what happens to them...
     Rather, I'm worried about those who will contact you again someday..." - Haruki Murakami.
+<img width="464" height="458" alt="image" src="https://github.com/user-attachments/assets/06fba1bb-f9bc-4e27-a359-372fa5abb364" />
 
     
                     if you want to start chatting, write anywhere, all links are listed here.
