@@ -5,7 +5,7 @@
  ![de02911fa1afffdd451b22b04da56ed8](https://github.com/user-attachments/assets/373d4be5-826e-4199-864f-ae4e23f23bae)
  
       "I'm not worried about you, people like you are always fine, no matter what happens to them...
-      Rather, I'm worried about those who will contact you again someday..." - Haruki Murakami.
+         Rather, I'm worried about those who will contact you again someday..." - Haruki Murakami.
                                   ࣪˖ ⊹ ──────────── 𓆩♱𓆪 ───────────── ⊹ ࣪ ˖
                     if you want to start chatting, write anywhere, all links are listed here.
                                     Хочешь пообщаться - пиши в дискорд(wotthehak).
